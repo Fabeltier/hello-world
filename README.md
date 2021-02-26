@@ -9,8 +9,3 @@ dsaf
 df
 dsf
 
-dsffdsf
-jiöhuk
-
-
-fdsfds
